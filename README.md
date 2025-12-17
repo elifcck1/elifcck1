@@ -17,4 +17,4 @@ I am a passionate CS student currently focusing on building a strong foundation 
 I believe in "learning by doing." I'm currently documenting my journey by uploading my progress and projects here. My aim is to transition from small exercises to full-scale applications soon.
 
 ---
-📫 **How to reach me:** [github.com/elifcck1]
+📫 **How to reach me:** [https://www.linkedin.com/in/elif-çiçek-44701928b]
